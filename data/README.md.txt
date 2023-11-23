@@ -1,0 +1,1 @@
+click this link(https://drive.google.com/drive/folders/1gibNLCY_2KeKnxK2n3lvL9qpTfFqdANG?usp=sharing) to download real enhancer sequences.
